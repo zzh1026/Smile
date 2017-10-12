@@ -31,4 +31,4 @@ http://blog.csdn.net/yhaolpz/article/details/77922521
 
 **版块三：动态搞笑图**
 
-![这里写图片描述](http://img.blog.csdn.net/20170911113803706?watermark/2/text/aHR0cDovL2Jsb2cuY3Nkbi5uZXQveWhhb2xweg==/font/5a6L5L2T/fontsize/400/fill/I0JBQkFCMA==/dissolve/70/gravity/SouthEast)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;![这里写图片描述](http://img.blog.csdn.net/20170911114831696?watermark/2/text/aHR0cDovL2Jsb2cuY3Nkbi5uZXQveWhhb2xweg==/font/5a6L5L2T/fontsize/400/fill/I0JBQkFCMA==/dissolve/70/gravity/SouthEast)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;![这里写图片描述](http://img.blog.csdn.net/20170911161959651?watermark/2/text/aHR0cDovL2Jsb2cuY3Nkbi5uZXQveWhhb2xweg==/font/5a6L5L2T/fontsize/400/fill/I0JBQkFCMA==/dissolve/70/gravity/SouthEast)<br>
+![这里写图片描述](https://raw.githubusercontent.com/yhaolpz/Smile/master/img-folder/1.gif)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;![这里写图片描述](https://raw.githubusercontent.com/yhaolpz/Smile/master/img-folder/2.gif)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;![这里写图片描述](http://img.blog.csdn.net/20170911161959651?watermark/2/text/aHR0cDovL2Jsb2cuY3Nkbi5uZXQveWhhb2xweg==/font/5a6L5L2T/fontsize/400/fill/I0JBQkFCMA==/dissolve/70/gravity/SouthEast)<br>
